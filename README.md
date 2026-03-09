@@ -1,2 +1,2 @@
 # sign ata ! 
-![Alt text](https://github.com/ribbonyumii/tenshienanan/blob/75033b7ef7e87160af308271e2e1ca8e58278ba7/Untitled2248_20260309183841.png)
+![Alt text](https://github.com/ribbonyumii/tenshienanan/blob/cd2ddb785c06460ad1fa35ca1bfef1cf9262a0fd/Untitled2248_20260309191834.png)
